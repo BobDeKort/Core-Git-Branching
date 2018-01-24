@@ -23,7 +23,12 @@ The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
 Will met the Unicorn King who granted him magic powers.
-The end.
+
+With these amazing powers he just got, Will felt a shift in judgement and started planning how to take over the world. With little effort or thought Will already took over continental America by the time he was 18.
+
+The rest of the world was just around the corner.
+
+The end?
 
 ## Cast
 
