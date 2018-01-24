@@ -24,7 +24,9 @@ He took a tentative step through the door and followed the stone path overgrown 
 
 Will met the Unicorn King who granted him magic powers.
 
-With these amazing powers he just got, Will felt a shift in judgement and started planning how to take over the world. A few days passed and a concrete plan was formed, it wasn't going to be a challenge. With little effort or thought Will already took over continental America by the time he was 18.
+With these amazing powers he just got he went up to the Zookeeper and showed what he now can do.
+But this demonstration ended tragically when a rogue fire ball fit the Zookeeper in the face.
+Will felt a shift in judgement and started planning how to take over the world. A few days passed and a concrete plan was formed, it wasn't going to be a challenge. With little effort or thought Will already took over continental America by the time he was 18.
 
 The rest of the world was just around the corner.
 
